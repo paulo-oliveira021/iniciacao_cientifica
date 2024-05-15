@@ -1,3 +1,1 @@
 # iniciacao_cientifica
-
-sarapatel
